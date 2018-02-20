@@ -1,3 +1,3 @@
 # Seamos
 Reforestamos
-Creo que era este el que tenia que cambiar
+Estamos creando un mapa donde personas de todo el mundo puedan sumarse a nuestra iniciativa de Reforestar el planeta!
